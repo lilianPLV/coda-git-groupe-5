@@ -1,3 +1,6 @@
 Guide de Survie Étudiant - Orléans
 
-PULVERIN Lilian # coda-git-groupe-5
+PULVERIN Lilian
+LAURENT Pierre
+RIGAGEAU Théo
+de BOYSSON Tom
