@@ -2,17 +2,17 @@
 
 
 
-Le Café de la Paix
-Le Bistrot des Arts
-Le Pub du Campus
+L’Atelier des Étudiants
+Le K-Fêt’
+Le Café des Arts
 
 
 
 
-Les restos de street food
-Les petits bistrots ou brasseries
+La Cantine du Coin
+Pizzeria La Scala
 
 
 
 
-Centre Commercial Les Halles
+La Friperie Étudiante
