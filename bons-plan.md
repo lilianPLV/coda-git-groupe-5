@@ -2,17 +2,17 @@
 
 
 
-L’Atelier des Étudiants
-Le K-Fêt’
-Le Café des Arts
+L’Atelier des Étudiants, Le Campus’k
+Le K-Fêt’, Bulle & Notes
+Le Café des Arts, La Pause TD
 
 
 
 
-La Cantine du Coin
-Pizzeria La Scala
+La Cantine du Coin, Fast’Campus
+Pizzeria La Scala, Le Plat d’Etudes
 
 
 
 
-La Friperie Étudiante
+La Friperie Étudiante, Le Quartier Étudiant
